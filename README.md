@@ -5,7 +5,7 @@
 - :computer: I’m looking to collaborate on various projects and find a full-time job as a Front-End Developer.
 -  :dancer: I love to dance and listen to :notes:
 - ⚡ Fun fact: I was a news producer for several years.
-- 📫 How to reach me: stephaniedmathis@gmail.com
 - 😄 Pronouns: she/her
+- 📫 How to reach me: stephaniedmathis@gmail.com
 
 
